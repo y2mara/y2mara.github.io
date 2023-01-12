@@ -1,2 +1,62 @@
 # y2mara.github.io
 Ann Martina Lazaro
+
+
+
+> Dagat tatawirin
+Makasama lang kita
+Kahit malalim
+'Di magkakailang
+Adik na nga ako
+Sa magara mong amoy
+Tama pa ba ito?
+Ang ibigin ka
+Kahit laging bumagyo
+O malunod man ako
+Kakayanin lumangoy
+Dignidad itataboy
+Dumaan man sa bulkan
+O do'n sa kung saan-saan
+Kahit na ako'y sugatan
+Easy lang ang lahat nang 'yan
+Halimuyak
+Mong hinahanap kong magdamag
+'Di masukat
+Ang pagitan ng sobra't sapat
+Kailangan kita
+Halika na nga
+Medisina
+Lindol walang palag
+Kung makasalubong ka
+Diretso sa lapag
+At kusang hihinto ang mga sakuna
+Matigas ang ulo ko
+Mapapahamak
+Talaga ako
+Kahit na ako'y ganito
+Imposibleng huminto
+Nauubos din ako
+Balang araw ay lalayo
+Hawak mo 'ko sa leeg
+'Di na makakaalis
+Pambihira talaga
+Ang mahika
+Halimuyak (halimuyak)
+Mong hinahanap kong magdamag
+'Di masukat ('di masukat)
+Ang pagitan ng sobra't sapat
+Kailangan kita
+Halika na nga
+Medisina
+I love you, my medicine
+I love you, my medicine
+Mahal kita, my medicine
+Mahal kita, my medicine
+I love you, my medicine
+I love you, my medicine
+Mahal kita, my medicine
+Mahal kita, my medicine
+
+
+
+![beabadoobee](https://i.pinimg.com/236x/ac/f4/74/acf4741cde99c077a4bb3c8a9fa24c69.jpg)
