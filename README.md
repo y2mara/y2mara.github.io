@@ -64,5 +64,5 @@ Mahal kita, my medicine
 
 
 
-![beabadoobee](https://i.pinimg.com/236x/ac/f4/74/acf4741cde99c077a4bb3c8a9fa24c69.jpg)
+![beabadoobee](https://api.floodmagazine.com/wp-content/uploads/2022/04/flood-day3-beabadoobee_MG_7615-1.jpg)
 
