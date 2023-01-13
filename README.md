@@ -3,59 +3,45 @@ Ann Martina Lazaro
 
 
 
-> Dagat tatawirin
-Makasama lang kita
-Kahit malalim
-'Di magkakailang
-Adik na nga ako
-Sa magara mong amoy
-Tama pa ba ito?
-Ang ibigin ka
-Kahit laging bumagyo
-O malunod man ako
-Kakayanin lumangoy
-Dignidad itataboy
-Dumaan man sa bulkan
-O do'n sa kung saan-saan
-Kahit na ako'y sugatan
-Easy lang ang lahat nang 'yan
-Halimuyak
-Mong hinahanap kong magdamag
-'Di masukat
-Ang pagitan ng sobra't sapat
-Kailangan kita
-Halika na nga
-Medisina
-Lindol walang palag
-Kung makasalubong ka
-Diretso sa lapag
-At kusang hihinto ang mga sakuna
-Matigas ang ulo ko
-Mapapahamak
-Talaga ako
-Kahit na ako'y ganito
-Imposibleng huminto
-Nauubos din ako
-Balang araw ay lalayo
-Hawak mo 'ko sa leeg
-'Di na makakaalis
-Pambihira talaga
-Ang mahika
-Halimuyak (halimuyak)
-Mong hinahanap kong magdamag
-'Di masukat ('di masukat)
-Ang pagitan ng sobra't sapat
-Kailangan kita
-Halika na nga
-Medisina
-I love you, my medicine
-I love you, my medicine
-Mahal kita, my medicine
-Mahal kita, my medicine
-I love you, my medicine
-I love you, my medicine
-Mahal kita, my medicine
-Mahal kita, my medicine
+> Balikan ang kuwento ng
+Panahong walang palag, marami ang bulag
+Natunaw ang habag sa taong lumabag
+'Di ka niyan pagbibigyan
+Huhulihin ka agad, wala ka nang palag
+Deretso ka doon, abo sa garapon
+Umiikot lang ang panahon
+Ang bagong dekada '70
+Umiikot lang ang panahon
+Ang bagong dekada '70
+Ayaw kong bumalik noong
+Bawal ang magsalita, kapag may napuna
+'Di ka na nila uunawain pa
+Bakit ba sinasabi na
+Mas maigi daw noon? Mayaman ang buo
+'Di nila alam, maraming nagdugo
+Umiikot lang ang panahon
+Ang bagong dekada '70
+Umiikot lang ang panahon
+Ang bagong dekada '70
+Umiikot lang ang panahon
+Ang bagong dekada '70
+Umiikot lang ang panahon
+Ang bagong dekada '70
+Heto ba ang nostalgia
+Na inyong inaasam? Halika't balikan
+Nakikita mo ba 'yan? Dahas ang paraan
+Umiikot lang ang panahon
+Ang bagong dekada '70
+Umiikot lang ang panahon
+Ang bagong dekada '70
+Umiikot lang ang panahon
+Ang bagong dekada '70
+Umiikot lang ang panahon
+Ang bagong dekada '70
+Umiikot
+Umiikot
+Umiikot
+Ang bagong dekada '70
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/4bGwtaIjZKM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
