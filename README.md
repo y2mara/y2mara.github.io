@@ -12,7 +12,7 @@ Ann Martina Lazaro
 
 
 
-faves ko 4ever 
+faves ko 4ever & ever
 
 > zild
 > 
@@ -44,7 +44,7 @@ faves ko 4ever
 laluvs ko
 ![beabadoobee](https://api.floodmagazine.com/wp-content/uploads/2022/04/flood-day3-beabadoobee_MG_7615-1.jpg)
 
-| Date | Description |
+| date | description |
 | ---- | ----------- |
 | august 13 | birthday ko |
 
