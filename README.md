@@ -15,17 +15,29 @@ Ann Martina Lazaro
 faves ko 4ever 
 
 > zild
+> 
 > ivos
+> 
 > beabadoobee
+> 
 > new jeans
+> 
 > blaster
+> 
 > cas
+> 
 > lola amour
+> 
 > radiohead
+> 
 > sza
+> 
 > ariana grande
-? arctic monkeys
+> 
+> arctic monkeys
+> 
 > clairo
+> 
 > taylor swift
 
 
